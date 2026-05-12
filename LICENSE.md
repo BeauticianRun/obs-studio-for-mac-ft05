@@ -1,4 +1,4 @@
-# 
+# OBS Studio for macOS updated Effect: glitch-effect & EQ offers the most advanced OBS Studio for macOS effect, with glitch-effect and EQ. Ideal for professional video editors and
 
 
 
